@@ -45,8 +45,8 @@ Beginner-friendly games focused on planning & logic building
 ⸻
 
 📫 Connect With Me
-	•	💼 LinkedIn: add your LinkedIn link here
-	•	📧 Email: optional
+	•	💼 LinkedIn: https://www.linkedin.com/in/aareen-dakway-a0bba9324/
+	•	📧 Email: aareend@gmail.com
 
 ⸻
 
